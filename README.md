@@ -1,1 +1,1 @@
-# Tokyo-Olympics-2021-Quiz--with-timer-
+# Tokyo-Olympics-2021-Quiz-with-timer
